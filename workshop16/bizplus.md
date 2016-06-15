@@ -19,4 +19,28 @@
 ## 단체사진 포즈
 ### LV.1
 
-- ![단체1](https://www.google.co.kr/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwiKpILAlqvNAhXEGaYKHaiNAd8QjRwIBw&url=http%3A%2F%2Fphotorabbit.dam.so%2F113&psig=AFQjCNFnKGhXnYpK2OF_itRgZr3gFJv97A&ust=1466119387467472)
+- ![단체1](http://goo.gl/C9Fk8A)
+- ![단체2](http://goo.gl/FNA0sZ)
+
+### LV. 2
+
+- ![단체1](http://goo.gl/75uk8U)
+- ![단체2](http://goo.gl/2D00hz)
+
+### LV. 3
+- ![단체1](http://goo.gl/2FgqpA)
+- ![단체1](http://goo.gl/85UqZg)
+
+### LV. 4
+
+- ![단체1](http://goo.gl/3XVwzA)
+- ![단체1](http://goo.gl/veoa21)
+
+### LV. 5
+
+- ![단체1](http://goo.gl/7Z5COV)
+- ![단체1](http://goo.gl/IzgR3i)
+
+### LV. 6
+- ![단체1](http://goo.gl/ZZc57z)
+- ![단체1](http://goo.gl/ymQdI5)
