@@ -17,4 +17,6 @@
 ```
 
 ## 단체사진 포즈
-![]()
+### LV.1
+
+- ![단체1](https://www.google.co.kr/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwiKpILAlqvNAhXEGaYKHaiNAd8QjRwIBw&url=http%3A%2F%2Fphotorabbit.dam.so%2F113&psig=AFQjCNFnKGhXnYpK2OF_itRgZr3gFJv97A&ust=1466119387467472)
